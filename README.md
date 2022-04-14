@@ -1,5 +1,5 @@
 # Video-Script-For-Social404
-I made this horrible script for @notsocial404 a long time back and it's time for everyone to laugh at it
+I made this horrible script for @notsocial404 a long time back and it's time for everyone to laugh at it<br><br>btw social loved this script when i first showed it to him. I dont have proof because his account gets termed so many times and this happened a long time back.
 <br>
 
 # The Script:
